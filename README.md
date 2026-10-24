@@ -40,7 +40,7 @@ Sono una **Data Analyst** con focus su contenuti, comportamento degli utenti e a
 
 ---
 
-🌍 Aperta a opportunità come Data Analyst in **media, contenuti digitali e ambienti basati su dati e IA**  
+🌍 Aperta a opportunità come Data Analyst in **retail, media, contenuti digitali e traduzioni**  
 
 📫 **Contattami**  
 - https://www.linkedin.com/in/andrea-gauger-donayre/  
@@ -90,7 +90,7 @@ I'm a **Data Analyst** with a focus on content, user behavior and purpose-driven
 
 ---
 
-🌍 Open to Data Analyst opportunities in **media, digital platforms and AI-driven environments**  
+🌍 Open to Data Analyst opportunities in **retail, media, digital platforms and translations**  
 
 📫 **Connect with me**  
 - https://www.linkedin.com/in/andrea-gauger-donayre/  
@@ -140,7 +140,7 @@ Proyecto colaborativo seleccionada entre más de 2000 candidatos.
 
 ---
 
-🌍 Buscando oportunidades como Data Analyst, especialmente en entornos de **media, contenido digital o plataformas basadas en datos e IA**  
+🌍 Buscando oportunidades como Data Analyst, especialmente en entornos de **retail, media, contenido digital o tradiucciones**  
 
 📫 **Conecta conmigo**  
 - https://www.linkedin.com/in/andrea-gauger-donayre/  
